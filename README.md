@@ -1,16 +1,14 @@
-## Hi there 👋
+## About me
 
-<!--
-**LilyJones22/LilyJones22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I started learning to code because I wanted to be a video game developer<br>
+I still do want that of course, but I've been enjoying messing around with other things
 
-Here are some ideas to get you started:
+I have four cats total. (Technically I have 2 and my fiance has 2)
+- Autumn
+- Eclipse
+- Spook (pictured in my icon)
+- Bandit
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I enjoy writing stories in my spare time<br>
+The Legend of Zelda series is my favorite<br>
+Cross stitch is an obsession of mine<br>
