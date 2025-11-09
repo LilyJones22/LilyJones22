@@ -10,5 +10,6 @@ I have four cats total. (Technically I have 2 and my fiance has 2)
 - Bandit
 
 I enjoy writing stories in my spare time<br>
-The Legend of Zelda series is my favorite<br>
+The Legend of Zelda is my favorite series<br>
 Cross stitch is an obsession of mine<br>
+Oh, and I've started to get into crochet<br>
